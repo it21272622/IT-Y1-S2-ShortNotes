@@ -36,3 +36,7 @@ Here are some important notes that you better know before the exams / assignment
   ~ Use all the CRUD functionalities along each member's content.
   
   # Have fun 👍
+
+
+Quick update -
+I got my results for the semester aand I've got all A's for the above modules. I clearly didn't pay any attention to EAP module and I wasn't able to score well for that. Anyhow heres a reminder for you to equally study all of the modules. (I still got a 3.6 GPA ahem! lol), cheers!
